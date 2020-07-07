@@ -1,2 +1,2 @@
 # luyitong
-Artist's personal website
+Video Artist, Filmmaker, SAIC MFA
